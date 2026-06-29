@@ -1,4 +1,4 @@
-# 
+# Avançado Process Explorer modelos para Mac OS | Seguro Process Explorer modelos para PC Windows. Com automacao do sistema e analise de dados historicos — otimizado para máximo desempenho em cada plataforma.
 
 
 
